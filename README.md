@@ -7,4 +7,4 @@
 
 🤔 I’m looking for help with opportunities for work in data analysis, and business analytics 
 
-📫 How to reach me: https://www.linkedin.com/in/chinmay-joshi-220192cj/
+📫 How to reach me: https://www.linkedin.com/in/cj22
